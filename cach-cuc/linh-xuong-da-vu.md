@@ -7,3 +7,6 @@
   Xấu nó vẫn cứ là xấu nhé.
 
 - Để cải số được bộ này kể cũng khó. Vì toàn là sao âm. Để thành cách cục được rất khó. Nhưng khi thành rồi thì hầu như không hóa giải được, vì cái xấu của các sao âm này cứ dần dần len lỏi, đầu độc từng ngày. Đến rồi 1 ngày gặp kích phát, không chịu nổi nữa mà bung ra thành họa.
+
+- Thực chất cái độc của nó là vì toàn sao âm hội về. Mỗi Văn Xương là Dương. Cái độc chỉ phát tác khi đồng cung và xung chiếu.
+  Nếu không đồng cung, thì cần chờ vận

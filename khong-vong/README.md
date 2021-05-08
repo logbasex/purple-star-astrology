@@ -97,3 +97,38 @@ Tại các vị trí Cự Môn Miếu Vượng, tức là lời nói của Cự 
 Cự Môn Tý Ngọ cũng tương tự như vậy. Người Cự Môn Tý Ngọ có khả năng ăn nói lý luận, nhưng lại thường kín tiếng và không nói nhiều. Nếu gặp Quyền, Lộc, Lộc Tồn, thì mới phát huy ra được, có tài ăn nói mà thành công. Nếu không cũng chỉ như vùi sâu trong đá, yên thân an phận mà hưởng phúc.
 
 Vậy Cự Môn Tý Ngọ gặp Tuần Triệt thì sao. Vẫn là khả năng ăn nói, nhưng thay vì ám (ẩn đi, giấu đi, che đi), nhờ tuần triệt mà tính ám bị mất đi, thành ra lại lộ ra, thể hiện được bản thân mình. Cũng giống như việc phá đá lộ ngọc ra vậy. Tuy nhiên, đó vẫn chỉ là ngọc thô. Phải có lộc quyền tam hợp mới làm nên chuyện được.
+
+
+----------
+
+anh đan trì cho hỏi, nếu cung vô chính diệu gặp tuần triệt theo như anh nói là:
+- trường hợp 1 là có rất nhiều
+- trường hợp 2 là ko có gì cả
+nhưng theo ngọc coi lá số nhiều năm nay thì những người có cung vô chính diệu thì cái mức mà họ có chỉ ở mức trung bình, tức ko nhiều cũng ko ít. chứ ko rơi vào 2 trường hợp trên như anh nói. Vậy lý do sao mà anh lại chia nó ra làm 2 trường hợp như vậy?
+  > Em không nên cứng nhắc như vậy. Thứ nhất, còn để xem toàn không có hoàn toàn không. Đẻ ra 1 thẳng thọc gậy như Kình, Đà, Tả Hữu thì cũng không đáng gọi là VCD, VCD nửa mùa thôi.
+  Thứ 2 là, tử vi nam phái chú trọng về toàn cục, xem lâu dài, xem tổng thể, dựa vào vài năm, chục năm cuộc đời mà kết luận thì đâu có được.
+  Thấy họ trúng số độc đắc thì cố tìm cho được cách cục đại gia, tỷ phú mà không thấy rồi kêu tử vi sai, mà không ngờ được vài năm sau có thể họ phá sạch tiền của họ rồi.
+  
+------------
+
+Hiểu về tuần triệt của mọi người hỗn loạn quá, thành ra rất khó khi xem một ls.
+Tuần triệt không phải "đặc sản" của từ vi, khái niệm không vong có từ trong dịch, vì chi có 12 chi từ tý đến hợi, trong khi can có 10 can từ giáp đến quý, nên tạo ra lệch can chi, tạo ra không vong (tuần triệt đều là không vong theo thời gian gắn và dài mà là tuần và triệt thôi). Trong quẻ dịch, tứ trụ có khái niệm này, không vong rất quan trọng.
+
+Trong tử vi ta cứ hiểu ông nào cần bộ vị, gặp tuần triệt ảnh hưởng nhiều hơn.
+Ví dụ như tử vi cần tả hữu, xương khúc, phủ tướng... Đương nhiên gặp không vong là hỏng, phá cách. Tương tự như vậy các ông như thất sát cự môn gặp không vong cũng không hoàn cách. Các sao chủ phúc, có tính độc lập gặp không vong sẽ đỡ xấu hơn nhiều như thiên lương,thiên đồng chẳng hạn, hay như các tinh đẩu có độ sáng cao như nhật nguyệt gặp không vong ảnh hưởng sẽ không nhiều. Nên nói thái âm thái dương miếu vượng gặp không vong sẽ thành hãm hay ngược lại thì chưa chắc đã vậy. Vì âm dương còn quá nhiều điều phải bàn.
+Nhưng phải khẳng định ngay, một cung gặp không vong tức thì có tính chia cắt (không chỉ với cung ấy mà tất cả các cung tam phương, tứ chính. Duy tuần có đặc biệt một chút), không còn nguyên bộ vị đó nữa, ảnh hưởng theo thời gian và điền thực.
+Tuy vậy bất luận thế nào cũng phải xét bộ vị, nếu bộ vị tam phương tứ chính hay gặp không vong cơ bản là hỏng (không còn đẹp như vậy, không vong ở đâu, luận cản trở ở đó), nhưng bộ vị ấy xấu, gặp không vong sẽ không luận hoàn toàn hung, hay trong hung gặp cát như thế (không vong ở đâu cứu giải ở đó), vì tử vi là như vậy.
+
+--------
+
+Tuần Triệt đồng cung thì không tháo gỡ nhau, mà chịu đựng gấp đôi. Độ Không Vong tại cung đó tăng lên nhiều. Nên cái ý tượng "có cũng như không" ở cung đó cũng sẽ rõ ràng hơn.
+Ví dụ:
+- Cung tử tức: sớm xa con, mất con, con ở với ông bà, con lập nghiệp sớm, con không chu cấp gì cho cha mẹ v.v...
+- Cung phu thê: bỏ chồng , mất chồng, chồng có cũng như không v.v....
+- Cung quan lộc: việc nay đây mai đó, việc xách ô đi rồi về, việc kín kẽ không dám lộ ra ngoài, thất nghiệp v.v...
+  
+  Mức độ tốt xấu còn tùy thêm nhị hợp, tam hợp, xung chiếu và bản cung có những sao gì nữa. Và lưu ý kĩ sao nhị hợp. Vì tính ám rất mạnh. Vì bản chất chính cung là Không Vong rồi, nên những thứ tưởng không mà có, tưởng ảo mà lại thực.
+  Ví dụ:
+- Cung Phu Thê tuần triệt đồng cung, nhị hợp rất đẹp, cho thấy không chồng nuôi con, nhưng cặp bồ với người khác, hoặc được người đàn ông nào đó cung phụng chăm sóc cho chu đáo.
+- Cung Tử Tức tuần triệt đồng cung, nhị hợp rất đẹp, cho thấy con cái không quan tâm, xa rời sớm, nhưng có người giúp đỡ chăm sóc hiếu thuận còn hơn cả con.
+- Cung quan lộc tuần triệt đồng cung, nhị hợp rất đẹp, cho thấy mình không có quyền chức gì, nhưng vẫn có quyền lực, ảnh hưởng đến người khác (phu nhân quan lớn chẳng hạn).
