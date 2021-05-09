@@ -1,0 +1,51 @@
+Sát Phá Tham tổng luận
+
+Sát Phá Tham là một bộ sao, luôn tam hợp với nhau. Nếu thấy một trong ba sao tức là có cả ba, nghĩa là mang hết thảy ý nghĩa của toàn nhóm.
+
+Sát Phá Tham là bộ sao có tính khám phá, khai phá cực mạnh, có thể coi là sức khai phá mạnh nhất trong toàn bộ chính tinh. Thất Sát là sao thứ sáu của chùm Nam Đẩu, thuộc Âm Kim, tính chất độc lai độc vãng, ưa làm việc một mình, tính cách cứng rắn và cô độc, đôi khi thiếu lãng mạn và khô cứng. Do vậy Thất Sát thường ít tri kỉ, ít bạn đúng nghĩa, trong gia đình Thất Sát thường cảm thấy bất hợp, cô đơn. Sự khám phá của Thất Sát, thiên về nội tâm cô độc mà biến thành nội lực, tự tìm lấy con đường riêng cho mình, nỗ lực khám phá mà thành sự nghiệp. Do ít tri kỉ, lại ưa một mình làm việc, cho nên có thể tiến nhanh và khó tiến xa, hợp với một chuyên môn hơn là những nghề nghiệp có tính tổng hợp và quần chúng. Nếu đi sâu vào 1 lĩnh vực cụ thể, có thể mang lại thành tựu lớn. Cũng vì ít tri kỷ và cô độc, Thất Sát dễ sinh nhầm lẫn. Thất Sát phát hiện ra một điều gì đó, thì thường dùng sự chủ quan của mình để đánh giá, mà ít tham khảo ý kiến của người khác, tính nhầm lẫn vì thế càng lớn hơn. Cho nên Thất Sát cần có Hóa Quyền làm ổn định lại về mặt tư duy, khiến Sát sáng suốt hơn mà thăng tiến sự nghiệp. Vì vậy mới nói " Tử Vi Thất Sát Hóa Quyền phản tác tinh tường"
+
+Đến như Tử Vi là sao Đế, đi với Thất sát còn khiến tinh hệ Tử Sát trở nên nhầm lẫn, đủ thấy Thất Sát hay nhầm đến cỡ nào. Biểu hiện trong thi cử, dễ vì thông minh sở học một thời mà đến lúc thi thì nhầm lẫn vu vớ mà kết quả không tương xứng với sở học. Cho nên nói là học tài thi phận, càng tệ hơn trong tình trạng Hóa Kỵ hội họp. Trong những sự việc khác nói chung, Thất Sát thường nóng vội và chủ quan, đưa đến những quyết định sai lầm. Như vậy, Thất Sát còn có tính nóng vội và chủ quan.
+
+Tuy đặc tính ưa khám phá, tìm tòi, nhưng nếu không có cát diệu hay Hóa Quyền, tính nóng vội và chủ quan của Thất Sát thường khiến sao này tìm hoài không thấy, tìm mãi không ra. Đôi khi lướt mắt qua đồ vật đến chục lần vẫn không nhìn thấy, hoặc kiểu nhìn gà hóa quốc. Cho nên, từ "mắt kém" có thể dùng theo nghĩa đen hoặc nghĩa bóng cho sao này.
+
+Thất Sát nghiêm nghị và trực tính, là một sao hung tính cách có phần hung dữ. Nhưng trong tình trạng ngộ Triệt, Thất Sát lại hiền lành đến ngơ ngẩn. Nếu gặp thêm Đà La càng trở nên như nhược yếu mềm. Trong ba sao Sát Phá Tham, Thất Sát gặp Triệt là tệ nhất, nó gần như làm mất đi tính xông xáo cứng rắn của Thất Sát.
+
+Phá Quân là sao Hao hay Háo, với tính khai sáng mạnh trong tư duy. Phá Quân tận dụng dữ liệu quan sát được của Thất Sát, để phân tích đúng sai và sẵn sàng thay đổi. Do vậy Phá Quân là sao thiếu tính ổn định, thường thoái tổ ly tông. Do ưa thay đổi, Phá Quân thường bỏ cái cũ để tìm cái mới, đạp đổ những định kiến truyền thống để khai phá hướng mới phù hợp hơn với Phá Quân. Cuộc đời của Phá Quân thường không an định.
+
+Phá Quân khai khá ra cái mới, tất nắm lấy cơ hội đó, bỏ đi cái cũ. Như vậy Phá Quân có tính nắm bắt và từ bỏ. Khi có được cái mới rồi, lại khám phá ra cái mới khác, lại nắm bắt cái mới bỏ cái cũ. Sự thay đổi do sự nắm bỏ này gây ra khiến cổ nhân gắn Phá Quân với  chữ Hao, từ hao tâm tổn trí đến hao tiền tốn của. Mỗi một lần Phá Quân bỏ cũ xây mới là một lần hao tổn không nhỏ.
+
+Cũng do đặc tính ưa khai sáng bỏ cũ thay mới, Phá Quân có tính thành lập và đập phá. Cần phải đập phá mới bỏ đi cái cũ được, và phá xong rồi phải lập nên cái mới tốt đẹp hơn theo ý Phá Quân. Do đó Phá Quân rất bạo, cái tính đàn áp tiên phong mà không thiên về phòng thủ, không chấp nhận định kiến. Người Phá Quân thường làm việc với kỷ luật cao, một sai sót nhỏ cũng bảo thằng Thất Sát moi ra cho bằng được, để Phá Quân đây sửa lại cho ưng ý. Vậy người Phá Quân cũng thường tỉ mỉ, cũng là ảnh hưởng một phần từ đặc tính vạch là tìm sâu, ưa tìm tòi bới móc của Thất Sát.
+
+Do đặc tính tiên phong ưa khai sáng ấy, Phá Quân lúc nào cũng bận rộn, có thể nói là bôn ba vất vả, lao trí lao lực để làm cho đúng ý mình. Chẳng mấy khi người ta thấy Phá Quân nhàn hạ. Và cũng chẳng mấy khi Phá Quân hài lòng với người khác, vì lúc nào Thất Sát cũng bới lông tìm vết, bảo với Phá Quân rằng cái đó chưa được đâu. Vậy người Phá Quân kỹ tính.
+
+Như Phá Quân ôm xương khúc, tức là Phá Quân ưa tìm tòi sách vở, thì lượng sách vở mà Phá Quân từng  đọc qua nhiều lắm. Vì cứ đọc xong lại chán tìm quyển khác, kiến thức của Phá Quân vì thế rất uyên thâm. Nhưng tình huống đó chỉ có thể đưa Phá Quân đến những thành công về lĩnh vực chuyên môn hay viết lách, khó tạo ra Phú Quý lớn được.
+
+Những đặc tính ấy, khiến Phá Quân có tính đàn áp, áp đặt, khống chế người khác. Cho nên làm  việc với Sát Phá Tham rất áp lực, đặc biệt là với Sát Phá, luôn luôn trong tình trạng thận trọng căng não để hoàn thành đúng kế hoạch và thiết kết. Mệnh Phá Quân hay hạn đến Phá Quân thường áp lực nhiều, và tính cách có phần phát xít.
+
+Cũng lại do luôn tiên phong tìm cái mới, Phá Quân thường nhanh chán. Làm mới rồi vẫn thấy không hài lòng, lại chán cái đó, tìm cái khác. Vì thế nội tâm Phá Quân thường tự gây nên khổ đau cho mình, thường cái gì cũng chán chường không vừa ý. Những khốn quẫn trong nội tâm thường khiến Phá Quân quẫy đạp đến quấy rối. Cho nên Phá Quân cũng là một sao ưa quậy phá. Như hạn đến sao Phá Quân nói riêng hay toàn Sát Phá Tham nói chung, ta thường thấy những biểu hiện của sự chán và muốn bỏ, thậm chí thất vọng bế tắc. Trong tình trạng đó, đưa đến sự quậy phá, có thể đập phá, tìm kiếm điên cuồng để tìm cái mới. Như vậy dù có được cái mới tốt đẹp trong hạn đó, Sát Phá Tham buộc phải chấp nhận mất đi cái cũ. Và sự thất vọng trong một phạm vi nào đó là không tránh khỏi. Nếu như một hạn tốt đẹp, Thất Sát gặp được cát diệu hoặc Quyền tinh để "phản tác tinh tường" tìm kiếm đúng cơ hội hay con người tốt, thì Phá Quân sẽ có cơ hội khai phá ra cái mới, xây dựng cái mới xứng đáng. Tình huống hội ám tinh hay sát tinh, phần lớn Sát Phá Tham sẽ bỏ đi cái mới đang tốt đẹp để tìm đến cái tệ hơn. Cho nên gặp "Trúc La tam hạn", người ta hiếm khi tìm thấy sự yên ổn.
+
+Phá Quân hội sát diệu kèm cát tinh, đi vào nghề thủ công hay kinh doanh thì có thể phát mạnh. Như nghề tháo lắp, phá dỡ, đánh bắt, mở rộng và phát triển thị trường...
+
+Tham Lang trong nhóm, được coi là ít biến động mạnh hơn hai sao còn lại. Tham Lang là sao thứ nhất thuộc chùm Bắc Đẩu, quản về thiện ác, họa phúc. Tham lang mang nặng tính vật chất, là ngôi sao tham vọng rất lớn. Tham Lang giỏi về giao tế thù tạc, là ngôi sao khéo léo giao tế, ưa hình thức và nặng tính dục. Cổ nhân coi đây là đào hoa tinh.
+
+Do nặng tính sắc dục, Tham Lang thường tham lam một cách tư lợi, thường ưa về hưởng thụ. Sao này tham từ vật chất tiền tài đến tình ái, tham sống sợ chết. Do dó Tham Lang có tính ích kỷ. Nếu lại trong tình trạng hóa Kỵ, tính ích kỷ lên cao đến mức người đời chê bai nhạo báng.
+
+Do lòng tham tư lợi đó, đặc tính tìm kiếm của Tham Lang rất mạnh. Để thỏa mãn lòng tham, Tham Lang tìm đến những món ăn ngon, chỗ giải trí hay, tìm đến những người có thể giúp Tham Lang thỏa mãn được dụng vọng của mình. Do ưa hưởng thụ, Tham Lang có tính lười biếng, thường lợi dụng người khác để tư lợi cho mình. Tham Lang xui Thất Sát tìm kiếm, và tự mình tham gia vào các cuộc vui, các tổ  chức, vừa để tìm vui thú, vừa để dò tìm thông tin và cơ hội. Cho nên Tham lang thường có tính tham gia, can thiệp việc của người khác.
+
+Tham Lang tham sống sợ chết, lại giỏi giao tế thù tạc, nên tính ngoại giao của Tham Lang khá tốt, giỏi né tránh hơn, khéo dung hòa hơn vì sợ mất. Những việc nguy hiểm, mệt nhọc và xông xáo, thường đẩy cho Thất Sát và Phá Quân. Vì vậy sự biến động của Tham Lang tuy cũng lớn nhưng không bằng Sát Phá.
+
+Chỉ có Tham ngộ Trường Sinh mới thọ như Bành Tổ, chứ Sát Phá thì không. Vì ưa hưởng thụ và sợ chết, nên mới có cơ hội thọ được. Chứ cứ độc lai độc vãng, đánh phá thành quách, chiếm đoạt công khai như Thất Sát, hay suốt ngày phá và lập như Phá Quân thì hao tâm tổn trí, lại nhiều hiểm nguy, cơ hội thọ đâu cao được.
+
+Cũng tìm kiếm khám phá như Thất Sát, nhưng Tham Lang khéo léo hơn rất nhiều. Cứ tham dự vào tổ chức, tìm chút manh mối, rồi xui Thất Sát đi kiếm tiếp, báo cho Phá Quân phân tích, mình ngồi hưởng. Cho nên đúng sai thường Sát Phá chịu nhiều hơn.
+
+Tham Lang có tính giải trí văn nghệ như vũ khúc, cũng là ngôi sao khéo léo. Nhưng Tham Lang tham gia tư vấn bày mưu hiến kế hơn là trực tiếp biểu diễn như Vũ Khúc. Sát Phá thường hành động một mình, đơn độc làm việc và chiến đấu, nhưng Tham Lang thì khi có việc sẽ kêu gào sự trợ giúp, đẩy bớt trách nhiệm và nhiệm vụ cho người khác. Trong nhóm Sát Phá Tham, Phá Quân có tính cầm đầu tổ chức hơn, do có tính tiên phong và thành lập, Thất Sát thường bị đẩy ra biên cương như một kẻ dò đường và dọn dẹp hành lang, còn Tham Lang thường chỉ ủ mưu hiến kế như quân sư, thường can dự các công việc nội bộ để moi móc thông tin hơn là xông xáo chiến đấu.
+
+Tham Lang ngộ Tử Vi, làm hỏng cả ngôi đế, là Đào Hoa phạm chủ, lung lạc cả vua. Vậy sự ham muốn và những lời ru ngủ của Tham Lang mạnh đến mức nào.
+
+Tham Lang ngộ Hình, hiệu viết phong lưu thải trượng, do ăn chơi mà dính vào hình phạt.
+
+Người Tham Lang do vậy thường nảy nở về cơ thể sớm, hình thức thường có da có thịt, mơn mởn khêu gợi.
+
+Mệnh hay hạn Sát Phá Tham, sẽ mang đặc tính của cả ba sao. Ở từng vị trí sẽ có những nét dị biệt như đã phân tích. Nhưng dù muốn hay không, cuộc đời của người tại sao này ắt sẽ đi qua đại vận của 2 sao kia. Như Tham Lang tại Mệnh tất sẽ có Sát Phá tại Tài Quan. Gần như ít nhất sẽ nếm đủ 2 hình thái trong ba hình thái đó. Như Tham ngộ Hỏa Linh, sẽ phát danh phát phú, nhưng khi chuyển qua hạn Thất Sát hay Phá Quân, thì Sát Phá ngộ Hỏa Linh sẽ đưa đến những mất mát tổn hại khôn lường, do Hỏa Linh gặp Sát Phá thì sức tàn phá khỏi nói.
+
+Bộ sao này cần có Tuần Triệt kiềm chế bớt tính hung và bạo của Sát Phá, kiềm chế bớt những tham vọng của Tham Lang, đồng thời ngăn bớt nguy cơ xâm nhập quậy phá của sát tinh Hỏa Linh Không Kiếp. Những tính chất đặc trưng trên luôn chỉ là mức độ sơ khai nhất trong luận đoán. Tùy vào phụ diệu hội nhiều ít, và thế đứng của tinh bàn, để có thể nhận xét tỉ mỉ đúng nhất về các tính chất này.

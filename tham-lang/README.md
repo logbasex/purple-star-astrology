@@ -1,0 +1,60 @@
+- http://www.tuvitamlinh.com/2018/01/tham-lang-biet-luan.html
+
+Tham Lang biệt luận
+
+Những tính chất đặc điểm của Tham Lang đã nêu trong Sát Phá Tham tổng luận và Phá Quân biệt luận đều được áp dụng cho Tham Lang, có thể không nhắc lại hết trong bài viết này. Từ vị trí Tham Lang luôn có Thất Sát và Phá Quân tam hợp. Cho nên có Tham Lang, tất có hết các tính chất của toàn nhóm Sát Phá Tham, tuy vẫn có những nét dị biệt.
+
+Tham Lang là sao thứ nhất thuộc chùm Bắc Đẩu, quản về thiện ác, họa phúc. Tham lang mang nặng tính vật chất, là ngôi sao tham vọng rất lớn. Tham Lang giỏi về giao tế thù tạc, là ngôi sao khéo léo giao tế, ưa hình thức và nặng tính dục. Cổ nhân coi đây là đào hoa tinh.
+
+Tham Lang được coi là cội nguồn, động cơ hoạt động của toàn nhóm Sát Phá Tham. Do sao Tham Lang tham vọng và ưa hưởng thụ, lại hay tìm kiếm để thỏa mãn dục vọng của mình nên toàn nhóm ảnh hưởng chung. Tham Lang khéo léo trong giao tế thù tạc, ngoại giao giỏi, nên thường xúi giục được Thất Sát năng nổ khám phá, tranh đoạt, nịnh Phá Quân tiêu tiền (Háo Diệu), thay đổi chỗ ăn chơi giải trí này đến chỗ khác lạ hơn ngon hơn, đổi cái điện thoại này đã lỗi thời vì nó ra version mới, xây cái nhà khác to hơn để còn giao tế rượu chè khách khứa, chỗ này chật chội mà mình thì cần phát triển...Nói chung là lý do của Tham Lang luôn hợp lý. Cộng thêm tính chất lả lơi nặng sắc dục, sắc độ của Đào Hoa tinh dễ lung lạc và xui khiến Sát Phá theo ý mình. Ngược lại, sau khi Sát Phá tìm kiếm, mua sắm, thay đổi, xây dựng mới, Tham Lang lại chén tạc chén thù chúc tụng tâng bốc, động viên, chăm chút cho đời sống vật chất và tinh thần của Sát Phá tốt hơn, ăn những món ngon hơn, chơi những chỗ lạ hơn, những trò hấp dẫn hơn, sắm quần áo, sửa ngoại hình chỉn chu hơn, làm gì Sát Phá không thích và không thấy hợp lý.
+
+Tiền đâu anh Phá Quân đưa em giữ cho, anh hay tiêu xài hoang phí thế không nên giữ tiền, cần tiêu gì em chi. Vả lại bọn Thiên Tướng ngoài kia nó hay đòi, anh thoáng tính thế lại rơi vào tay nó. Ừ nhỉ, Phá Quân mình hay tiêu hoang thật, lại hay mày mò vọc vạch, người ta gọi mình là Hao cũng phải. Thôi đưa em Tham Lang giữ.
+
+Đồ anh kiếm về đâu rồi anh Thất Sát, đưa em giữ cho. Anh tính hay nhầm lẫn lẩn thận lại đánh mất thì phí. Thằng Thiên Phủ ngoài kia lúc nào cũng sẵn sàng chôm đồ cất kho. Anh cần gì thì em đưa sau. Ừ hợp lý quá, đưa Tham Lang nó giữ, tính nó khéo léo cẩn thận hơn, chứ đưa ông Phá Quân ông tiêu hết, hoang lắm.
+
+Vậy là béo em Tham Lang rồi. Tha hồ nghĩ đủ trò chi tiêu hưởng thụ. Tham Lang chi tiêu cho toàn nhóm, cung cấp từ lương thực thực phẩm, đồ uống đến các dụng cụ sinh hoạt, công cụ làm việc, chi phí đi lại, chi phí tiếp khách ngoại giao, chi phí ăn chơi giải trí, đủ các loại chi phí. Nhờ có Tham Lang, hoạt động của toàn nhóm trở nên ổn định hơn, và kích thích Phá Quân với Thất Sát miệt mài hơn với vai trò của mình để còn có cái mà tiêu, mà ngoại giao phát triển. Tham Lang càng tham vọng lớn, thì càng cổ động Sát Phá làm việc nhiều. Thành bại tốt xấu còn tùy cách cục và thế đứng. Có những Tham Lang khiến toàn nhóm thành công, cũng có những Tham Lang đưa cả nhóm vào tù hay bị giết.
+
+Tham Lang giỏi giao tế thù tạc, đưa đến người Tham Lang thường tham gia nhiều cuộc vui, ngoại hình thường được chăm chút, và lời lẽ nhiều phần thuyết phục, hiểu biết. Do đó, tửu lượng của người Tham Lang thường cao, cơ thể có phần đẫy đà hơn Sát Phá. Tham Lang cũng thường là người hay ăn uống, ăn khỏe. Đây là luận điểm chung, nếu các sao tiết chế vào thì lại khác.
+
+Tham Lang do đó cũng đóng vai trò cố vấn quân sư tốt cho toàn nhóm. Tham Lang thừa kế thông tin của Thất Sát tìm kiếm bên ngoài, tự mình ngoại giao để lấy thông tin bên trong, kế thừa tính sáng tạo và tỉnh táo của Phá Quân nhưng thường không vượt quá vai trò của mình, vì vẫn để Phá Quân làm lãnh đạo. Một phần vì Tham Lang ưa nhàn và hưởng thụ, không dại gì nắm lấy vai trò của Phá Quân đầu sóng ngọn gió cho vất vả. Vì thế, một người một việc, Tham Lang vẫn trung thành với vai trò của mình, thường chỉ tư vấn và cổ động cho Sát Phá làm việc, cung cấp thông tin ngoại giao, cung cấp phân phát tài lực vật lực cho toàn nhóm.
+
+Do vai trò đó, Tham Lang có tính can dự mạnh. Bất kể việc của Sát hay Phá đều phải hỏi qua Tham Lang. Tất nhiên rồi khi tiền và tài sản nó đều giữ, cần gì phải hỏi nó. Muốn có thông tin cũng phải hỏi Tham Lang, vì Thất Sát gần như chỉ có những thông tin vòng ngoài, lại hay nhầm lẫn, và Tham Lang mới đủ khả năng ngoại giao để moi móc thông tin từ nội bộ đối phương, tửu lượng nó cao mới chén tạc chén thù moi móc trong lúc đối phương say được.
+
+Cung nào có Tham Lang, tính can  dự của cung đó trở nên mạnh hơn, và mình cũng thường can dự nhiều vào cung đó. Dù vô tình hay cố ý, thường đưa đến kết quả là có sự tham gia của mình.
+
+Tham Lang giao tế với nhiều đối tượng, nên đối cung không định sẵn sao nào. Tuy vậy, do đặc tính hay tham gia can dự và ngoại giao, Tham Lang luôn nhị hợp với sao Thiên Đồng. Đây là ngôi sao chủ về thông tin, có tính tập thể và kín đáo vì nó còn chủ là cái bụng. Nào ai biết bụng người ta nghĩ gì, chỉ có Tham Lang chén tạc chén thù mơn trớn mới biết Thiên Đồng kia có gì trong bụng.
+
+Tham Lang là một Đào Hoa tinh, khả năng lung lạc do vì sắc dục và vật chất của Tham Lang rất tốt. Nếu hội với nhiều sao lãng mạn hay dâm tinh như Xương Khúc, Hồng, Diêu, Mộc Cái, tính dục của Tham Lang tăng cao khiến Tham Lang dễ sa đà vào đó.
+
+Đào Hoa tính và sự khéo léo giao tế thù tạc của Tham Lang đủ sức lung lạc cả đế tinh Tử Vi. Khi Tham Lang đồng cung Tử Vi tại Mão Dậu, cổ nhân gọi là Đào Hoa phạm chủ, vua quên luôn triều chính để ăn chơi cùng Tham Lang.
+
+Một cách tổng hợp, có thể thấy Tham Lang rất khéo léo và giỏi.
+
+Tham Lang còn có đặc tính sách nhiễu người khác vì những tham vọng của mình. Lại vì ưa hưởng thụ và lười làm việc tay chân, Tham Lang thường mượn Thất Sát đàn áp người khác để đạt mục tiêu của mình, từ đàn áp con cái vợ chồng, đến sách nhiễu nhân viên đệ tử...
+
+Tham Lang cũng là ngôi sao tham...sống. Từ tham ăn tham uống tham tiền của đến tham sống sợ chết, đủ các loại Tham. Cho nên chỉ có Tham ngộ Trường Sinh thọ như Bành Tổ. Còn Sát Phá kẻ cầm gươm nơi biên ải, kẻ đi tiên phong khai phá, không được cổ nhân xếp vào loại thọ kể cả khi ngộ trường Sinh. Khi gặp vấn đề gì,  Tham Lang sẽ kêu gào người hàng xóm Thiên Đồng trợ giúp, xúi ông Thất Sát đi kiếm đồ kiếm người đoạt về, nịnh nọt Phá Quân mở ví chi tiêu...Tuy vậy, không nên hiểu một cách máy móc rằng như thế là xấu. Bởi nếu cứ độc lai độc vãng hành động như Thất Sát, hay vác tiền vung vít như Phá Quân thì dễ sinh nhầm lẫn và hao tổn. Cho nên sự ổn định hay bất ổn định của Tham Lang đưa đến kết cục chung cho toàn nhóm.
+
+Như vậy, tất thảy Sát Phá Tham đa phần kích hoạt bởi động cơ của Tham Lang. Vậy Tham Lang gần gặp Tuần Triệt để kìm bớt những tham vọng vô bờ của nó, mới khiến khát vọng đó có giới hạn cụ thể và đúng đắn. Từ đó nó định hướng cho Thất Sát nên tìm cái gì, tìm ai, ở đâu, đoạt cái gì về. Nó định hướng cho Phá Quân nên bỏ  cái gì, bỏ người nào, tìm đến cái gì, tìm người nào, tiêu cái gì, bao nhiêu cho hợp lý. Tuần Triệt khiến Tham Lang bớt ăn chơi lả lướt, giao tế có mục đích chung cho toàn nhóm mà không sa đà tư lợi, cũng khiến Thất Sát đỡ tìm nhầm, Phá Quân đỡ phá bỏ nhầm. Và tất nhiên tính mất mát hao tán của Sát Phá sẽ đỡ đi rất nhiều, mục tiêu toàn nhóm dễ có cơ hội hoàn thành hơn.
+
+Tham Lang đặc biệt hợp với Hỏa Linh, cổ nhân ca ngợi Tham Hỏa tương phùng phú ông chi cách, Tham Linh tịnh thủ tướng tượng chi danh. Tuy nhiên, điều này chưa hẳn toàn mỹ, vì nếu mệnh hay hạn có Tham Hỏa Tham Linh, có thể đưa đến những thành công vang dội, nhưng tất sẽ có ngày đáo hạn Sát Phá ngộ Linh Hỏa, sẽ lại tan tành mây khói vì Sát Phá rất sợ Hỏa Linh. Dễ thấy nhiều người bốc lên một thời như diều gặp gió, nhưng sau đó lại tan nát sự nghiệp hay gia đình. Có nhiều cách cục dẫn đến điều đó, nhưng nếu bàn riêng và cách Tham Hỏa Tham Linh, thì nguyên nhân ắt có và chủ yếu chính là do sau đó họ đáo hạn Sát Phá Linh Hỏa. Lại có những người qua hạn Sát Phá Linh Hỏa bỏ hết mọi thứ, rồi đáo hạn Tham Hỏa Linh lại phất lên bất ngờ. cho nên suy cho cùng, cũng chẳng nên có Hỏa Linh.
+
+Nếu như ngộ Hỏa Linh, cần và rất cần Tuần Triệt chế hóa, vừa kìm Tham Lang bớt tham vọng ăn chơi, vừa chế hóa Hỏa Linh cho đắc dụng. Nếu có Hóa Khoa cũng tốt, vì có thể giảm bớt tác họa của Linh Hỏa. Do Khoa có tính tiết chế và bảo toàn danh dự, lại khéo ăn nói, cho nên lúc bị Hỏa Linh kích phát, Sát Phá sẽ vì bảo tồn danh dự, tiết chế mà đễ hung bạo hơn.
+
+Tham Lang ngộ Không Kiếp, như thuyền đi trên sóng. Cuộc sống bấp bênh do những ham muốn và tham vọng ngược đời, hoặc lòng tham vô độ. Như Không Kiếp tác họa mạnh, lại chuyên đi ngược trào lưu, cho nên khiến Tham Lang tham những thứ trời ơi đất hỡi, từ những thứ nhỏ nhặt cũng tham, đến tham những thứ mình không bao giờ có cơ hội chạm đến. Tham Lang ngộ Không Kiếp sẽ gặp họa vì lòng tham của mình, vì sự can dự việc người khác không đúng cách, không cần thiết, sẽ bị từ chối không cho tham gia hội họp giao tế, hoặc bị áp bức trong các tình thế ngoại giao. Nhóm Sát Phá Tham trở nên hỏng khi Tham ngộ Không Kiếp, Thất Sát không được Thiên Phủ chi viện che chở, dễ nhầm lẫn thất bại mất mát, còn có nguy cơ bị Thiên Phủ chiếm mất tài nguyên. Phá Quân bị Thiên Tướng đàn áp chứ không tương trợ, ăn chia sẽ không đều do mất thế quân bình.
+
+Tham Lang ngộ Kình Đà, tất sẽ ngộ Hao, là tình trạng lương thực và tiền của bị tiết chế. Do Tham Lang quản về lương thực và tài vật của toàn nhóm. Đây là hiện tượng lương thực tiền của bị hao tổn, không chu cấp đủ và đúng cho Tham Lang, khiến Tham Lang bôn ba hơn. Nếu ngộ Kình, tất sẽ phải xông pha vất vả, chống đối tranh đoạt cùng Thất Sát, bôn ba lao lực cùng Phá Quân. Nếu ngộ Đà, tất ôm tham vọng lùng bùng, luẩn quẩn với khốn khó mà khó thoát khỏi lưới Đà La dây rợ. Tham vọng dần sẽ bị bào mòn đi, dễ sa đà bi lụy trong tình ái. Tham Lang ngộ Đà cũng chủ về tham vọng lan man, ước muốn nhiều thứ, tham gia dàn trải tìm cơ hội nhưng thường làm gì cũng như dây quấn chân, cho nên thường thấy cản trở và hao tổn. Tham Lang ngộ Đà, còn là cách trói tham vọng, đè nén ham muốn của mình. "THAM LANG ngộ Hao tàng dâm tình ư tỉnh để". Do vậy Tham ngộ Hao Đà Đào Hồng bớt ngại hơn do còn biết kìm nén. Nếu Tham ngộ Hao Kình thêm Đào Hồng tính dâm rất lớn, ăn chơi trác táng sa đạo. Nếu Tham Đà hội cát diệu, tam Hóa, chủ về thành công vào hậu vận, và thành công không lớn.
+
+Tham ngộ Đào Hồng, ngoài việc đưa đến tính dâm thái quá, còn khiến toàn nhóm Sát Phá Tham áp lực do hội Kiếp Sát. Có câu: Đào Hồng Sát Phá Liêm Tham, lâm vào nữ phái chỉ hiềm sát phu"
+hoàn toàn bất lợi cho nữ phái. Thời nay, nam phái cũng bất lợi với sự hội họp này.
+
+Tham Lang hội Hóa Lộc vốn rất tốt, chủ về sự tốt đẹp về tiền tài. Nhưng nguy cơ ngộ Kỵ hoặc Hình khiến tính vật chất sắc dục bị đè nặng, dễ u mê lầm lạc trong hưởng thụ vật chất và vướng hình phạt (Tham ngộ Hình hiệu viết phong lưu thải trượng)
+
+Trong tình trạng ngộ Hình hoặc Kỵ, nên có Khoa hay Quyền hóa giải. Như vậy Tham ngộ Khoa, Khoa Quyền, Khoa Lộc thì hay hơn.
+
+Tham Lang hội với Khôi Việt, tất khiến những tài năng của Tham Lang nổi trội, dễ thành danh. Lại có cơ hội gần gũi với quý nhân Khôi Việt, cơ hội thành công sẽ lớn. Khi đó Tham Lang với sự trợ giúp của Thiên Ất Quý Nhân, dễ lân la giao tiếp moi móc khai thác Thiên Đồng hàng xóm, lấy được nhiều thông tin mật, kết nối tốt hơn với cộng đồng. Tham Lang trở nên giá trị hơn trong toàn nhóm, uy tín hơn khiến Thất Sát có cơ hội hơn trong tìm kiếm tranh đoạt, Phá Quân có nhiều thông tin và tài lực hơn để phá cũ xây mới, khai phá sáng lập.
+
+Tham Lang hợp với Tứ Linh, chủ về vừa có lý lẽ của Tuế Hổ Phù vừa được gần gũi người quyền quý Long Phượng. Tuy nhiên cổ nhân chê Tham Lang ngộ Tuế:
+“Tham lâm THÁI TUẾ một miền.
+Trong  ngoài cơ trí đảo điên khó lường.”
+
+Điều này có lẽ không đúng, chỉ ứng nghiệm nếu có thêm Đà La do những dây rợ lan man trong lý lẽ của Thái Tuế.
