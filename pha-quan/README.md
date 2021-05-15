@@ -70,3 +70,21 @@ Ta thấy những Phá Quân nào trong xã hội:
 Ngoài những nhà phát minh khám phá ra vắc xin, thuốc quý, những phát minh hay khám phá vĩ đại trong thế giới khoa học và tâm linh, giúp xã hội phát triển hơn, con người sống tiện nghi hơn, ta cũng thấy những Phá Quân vẫn đánh bắt cá, săn thú,  những Phá Quân làm thợ sửa chữa, suốt ngày tháo lắp, những Phá Quân cắt tóc bỏ kiểu tóc cũ đi làm kiểu mới. Cuộc sống của những Phá Quân này từ vô cùng nổi tiếng, giàu có lẫy lừng, đến đủ cơm ăn áo mặc, đến lam lũ qua ngày đoạn tháng, đến bị áp bức bỏ rơi, đến tử trận hay tử nạn vô cùng nhiều thể loại. Đâu phải cứ Sát Phá Tham là vào quân đội hay theo võ nghiệp. Chọn một nhân viên đi phát triển thị trường, nên chọn một Phá Quân lý tưởng. Nghiên cứu một chuyên đề có tính khai phá táo bạo cũng cần một phá quân như vậy, mở mang bờ cõi hay mở rộng doanh nghiệp cũng cần những lãnh đạo Phá Quân như vậy, một thợ sửa chữa hay thợ cắt tóc giỏi cũng có thể là một Phá Quân như vậy, rất nhiều nghề và tính chất công việc cần đến Phá Quân.
 
 Phá Quân của bạn nằm ở đâu, và tình trạng của Phá Quân đó thế nào? Bài viết này phần nào giúp bạn soi chiếu và nghiệm lý. Tất nhiên chỉ là những luận đoán về riêng Phá Quân và toàn nhóm. Phá Quân trong tinh bàn hơn 100 tinh đẩu, sẽ biến hóa muôn hình vạn trạng, không thể nói hết trong phạm vi một vài bài viết.
+
+------------
+
+4/ TỬ VI PHÁ QUÂN (Tử Phá)
+
+Chỉ cùng cung tại Sửu Mùi, tạo thành "Tử Phá Mộ cung cách".
+
+Nếu đứng riêng đặc điểm của Tử Vi là tính khai phá, của Phá Quân là bất chấp hậu quả. Nhưng khi đứng chung Tử Vi bị Phá Quân lấn át, ngược lại Phá Quân cũng kính trọng khí độ của Tử vi. Hậu quả là hai bên cùng tự chế mà sinh ra mâu thuẫn.
+
+Hai cung Sửu Mùi là Âm Thổ, đồng thời là Mộ địa, biểu tương sự cẩn trọng, nhiều suy tính. Vì thế mà có khả năng giữ mọi sự ở trạng thái bình hòa, giảm thiểu những biến động do khuynh hướng của Phá Quân gây ra.
+
+Tử Vi có khuyết điểm là suy nghĩ quá nhiều, cô độc, trái tim dễ xúc động. Phá Quân dũng mãnh, cố chấp. Hai sao cộng lại, hay khởi sự bất chợt (do ảnh hưởng của Phá Quân) rồi khi lâm sự lại do dự, nhiều khi sắp thành công lại để cho thất bại (vì ảnh hưởng của Tử Vi ngăn chận đường lối tàn nhẫn của Phá Quân).
+
+Ưu điểm: Phong cách đặc biệt khác người. Kiến văn quảng bác, hành sự cẩn trọng, khả năng phán đoán cao, chịu khó học hỏi, có khả năng tự học tự biết không cần người giảng dạy. Tiến thủ có suy tính, coi thường những thành bại ở đời.
+
+Khuyết điểm: Cố chấp, nhưng khi lâm sự lại hay thối nhượng. Đời sống bất định, ở tuổi thanh niên thiếu phương hướng để cuốn theo chiều gió, sống đời sôi nổi theo khuynh hướng Phá Quân. Đến tuổi 30, 40 thường đổi tính, trở thành gần Tử Vi mà xa cách Phá Quân (4).
+
+(4) Đây là đặc điểm của mọi trường hợp có Phá Quân cùng cung. Ở buổi thiếu thời Phá Quân là khuynh hướng lấn át, nên đời sống nhiều xung động, nhưng từ tuổi lập thân (30 trở đi) khuynh hướng của cá nhân sẽ bị chi phối mạnh mẽ bởi sao còn lại. Về già người Tử Phá sống theo khuynh hướng cô độc của Vũ khúc, người Liêm Phá sống theo khuynh hướng khắc kỷ của Liêm Trinh chính vì lẽ ấy.
