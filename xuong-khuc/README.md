@@ -7,3 +7,7 @@ Văn Khúc Hóa Kị cũng biến thành ám diệu cho Phá Quân trong câu ph
 Văn Khúc như Văn Xương mang tính chất đào hoa mà lại gặp các đào hoa tinh càng làm tăng tính chất ấy. Nếu biết đi vào nghề nghiệp để tiếp xúc với nữ phái thì chất đào hoa sẽ tan biến vào nghề nghiệp nhờ vậy khả dĩ thành công. Nhưng khi Văn Khúc đứng với Thiên Đồng hay Cự Môn thì thường bị khổ vì tình, số nữ phiền lắm.
 Do cái tài ăn nói mà Văn Khúc gần cận người khác phái. Những sao hợp với Văn Khúc là Thiên Lương Tử Vi Thiên Phủ. Những sao này được Văn Khúc thì thông tuệ. Riêng Liêm Trinh đứng với Văn Khúc lại biến ra con người khẩu thiệt gian hoạt. Nữ mệnh Xương Khúc đi với Liêm Trinh dễ lưu lạc phong trần nếu gặp cả Linh Hỏa. Tại sao vậy?
 Vì Xương với Khúc đều là dịch mã tinh, ưa thay đổi, di động, tính tình không an định, mừng giận vô thường. Như thế là không chung tình. Thêm Linh Hỏa, những hung sát tinh ấy chuyển tình trạng không chung tình vào phong trần.
+
+---------
+
+- http://tuvilyso.net/diendan/forum_posts.asp?TID=2429
